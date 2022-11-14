@@ -2,4 +2,4 @@
 
 ## Introdução
 
-Podemos entender que geográficamente a terra é redonda.
+Podemos entender que geograficamente a terra é redonda.
