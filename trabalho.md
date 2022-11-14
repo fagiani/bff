@@ -3,3 +3,7 @@
 ## Introdução
 
 Podemos entender que geograficamente a terra é plana.
+
+## Conclusão
+
+...
