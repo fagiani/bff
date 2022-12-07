@@ -10,5 +10,9 @@ O continente americano é dividido em três, sendo eles: América Central; Amér
 #### O descobrimento:
 ---
 - **Quem descobriu a América?**
+Cristaovão Colombo, quando ele ia as índias e acabou pegando o caminho errado.
 
 - **Quando ela foi descoberta?**
+Em 1492,12 de outubro, quando ele estava navegando pelo oceano Atlântico.
+
+- **A terra já era abrigada?**
