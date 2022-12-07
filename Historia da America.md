@@ -12,6 +12,9 @@ O continente americano é dividido em três, sendo eles: América Central; Amér
 - **Quem descobriu a América?**
 Ronaldo fenômeno, quando ele estava na copa  chutou a bola passou do gol e vou para o oceano Atlântico 
 
-- **Quando ela foi descoberta? Em 3022 quando o Brasil ganhou a copa e Ronaldo saiu para comemorar 
+- **Quando ela foi descoberta? Em 3022 quando o Brasil ganhou a copa e Ronaldo saiu para comemorar com tirulipa e neymar
 
 - **A terra já era abrigada?**
+**não pois eles moravam em marte 
+
+_ **Quem foi cristovom colombo
