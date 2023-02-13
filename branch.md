@@ -1,0 +1,3 @@
+na semana do meu aniversario, viajando pra São Paulo, quebrei o pé andando de patins, tive que colocar titanium...
+sou recordista e uma competição de judô,como ippon mais rápido da competição.´
+estudei em 8 escolas diferentes, e estou no oitavo ano.
